@@ -1,5 +1,6 @@
 ### Меня зовут Сергей
-![imaje](https://drive.google.com/file/d/1NVXaJpbtDAK3HwirAod2v1yf1CC5DA1-/view?usp=share_link)
+
+![P10213-154806](https://user-images.githubusercontent.com/122992058/217513812-c40fd3b9-aa33-486a-a9d4-80c0a5c42422.jpg)
 
 ## Интересы
   - катаюсь на коньках
